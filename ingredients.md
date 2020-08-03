@@ -1,0 +1,11 @@
+ - one large bowl
+- 1 cup powdered sugar
+- 1/4 cup unsweetened cocoa powder
+- 1/2 tablespoon salt
+- 1 tablespoon baking soda
+- 1/3 cup unflavoured oil
+-  1 tablespoon vanilla essence
+-   1 cup warm water
+-  1/2 tsp coffee powder
+- 1 tsp vinegar
+ - 9 inch pan
